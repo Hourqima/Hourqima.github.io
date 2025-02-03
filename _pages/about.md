@@ -15,5 +15,4 @@ I am also a great lover of music. I was a lover of progressive rock music before
 
 I have certificates of painting and chinese flute, but I haven't practiced them for a long time. I can play badminton and table tennis as well, but only as an amaetur.
 
-[Email] (mailto:yuanqixiao801@mail.ustc.edu.cn) / [Wechat](hqm_0801) / [QQ](2863616877)
 
